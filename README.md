@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zhangbbin
 - 👀 I’m interested in basketball,tennis and so on
-- 🌱 I’m currently learning how to find a girl who contains purity.
+- 🌱 I’m currently learning how to 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
